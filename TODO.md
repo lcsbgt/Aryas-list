@@ -1,5 +1,6 @@
 Joffrey Baratheon
 Cersei Lannister
-Walder Frey
+Ilyn Payne
+
 
 
