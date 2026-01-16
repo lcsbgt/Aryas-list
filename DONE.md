@@ -1,6 +1,6 @@
 Titi – éliminé par Arya
 
-Ignotte Toto – empoisonné par Arya
+Ignotte Toto – empoisonné pas par  Arya
 
 
 
